@@ -3,6 +3,8 @@
 > Author: 吴烜圣 (wuxsmail@163.com)
 >
 > Date: 2020-2-14
+>
+> Full Page Paper download: http://www.kitgram.cn/downloads/something/SEIDC_19nCoV.pdf
 
 ### Data
 
